@@ -1,0 +1,1 @@
+# Z_10N1_02_techn_calc
